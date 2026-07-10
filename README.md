@@ -7,5 +7,5 @@
 <img src="https://i.pinimg.com/originals/4d/83/03/4d83039c23200bd0848f0f442e5c36d3.gif" width="750">
 <p align="center">
   <br><br>
-
+<a href="https://qwizzfizzzz.straw.page">strawpage</a>
 </p>
